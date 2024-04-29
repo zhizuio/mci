@@ -1,1 +1,1 @@
-https://alejandroschuler.github.io/mci/
+https://zhizuio.github.io/mci/
